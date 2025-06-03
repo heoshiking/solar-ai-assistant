@@ -1,1 +1,0 @@
-# solar-ai-assistant
